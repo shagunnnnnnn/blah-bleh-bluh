@@ -1,2 +1,1 @@
-# blah-bleh-bluh ?gtcyc
-hbb
+# blah-bleh-bluh
